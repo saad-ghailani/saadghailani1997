@@ -1,0 +1,5 @@
+- 👋 Hi, I’m saad ghailani
+- 👀 A second-year master's student, majoring in "software quality" 
+- 🌱 I'm currently an intern within the company "Soft Center"
+- 💞️ I look forward to collaborating on any project related to my specialty.
+- 📫 Saad1997.info@gmail.com
